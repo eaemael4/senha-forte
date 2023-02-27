@@ -1,2 +1,0 @@
-# senha-forte
-# senha-forte
